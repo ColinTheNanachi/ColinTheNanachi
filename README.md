@@ -8,4 +8,3 @@
 - Proud Owner of The Nanachi Empire
 - Sexuality: Asexual
 - I’m currently learning how to code and also learning how to make avatars and worlds
-- here is my [Discord server:](https://discord.gg/jAC5bqRQYH)
