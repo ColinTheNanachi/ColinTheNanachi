@@ -4,7 +4,7 @@
 - Age: 22 
 - Birthday: May 8, 2003
 - Gender: Male
-- Discord: colin_1314
+- Discord: _nanachi_09
 - Proud Owner of The Nanachi Empire
 - Sexuality: Asexual
 - I’m currently learning how to code and also learning how to make avatars and worlds
